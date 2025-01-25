@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer, and nature
 - 🌱 I’m currently learning computer things
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me search nyo lang shanna mae añonuevo sa fb
+- 📫 How to reach me search shanna mae añonuevo on fb
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: mas masarap kapag may pera
 
